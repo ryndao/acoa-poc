@@ -1,0 +1,1 @@
+Discord is a communication platform we use to stay in touch between meetings.  We are building a supportive and friendly community.  To join our Discord Server, create an account at Discord.com THEN follow this link:  https://discord.gg/Fr7JzkMEc2
