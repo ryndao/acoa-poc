@@ -1,0 +1,1 @@
+When anyone, anywhere reaches out for help, I want the hand of ACA to always be there.  And, for that, we are responsible.
