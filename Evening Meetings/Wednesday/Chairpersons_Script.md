@@ -50,7 +50,8 @@ We encourage everyone to share openly about their experiences as time allows.  T
 
 In order to keep the focus on ourselves, we share our own experiences and feelings and speak from the “I, me or my” position.
 
-Generally, at this point, meetings move into a topic, discussion and sharing portion of the meeting. The chairperson, sometimes called a moderator, is the person who reads the script, calls on people to share and makes sure that people do not monopolize the meeting.  Meetings often have a timekeeper to remind people when it is time to wrap up their share. When meetings have a timekeeper, it is always polite to acknowledge you’ve heard them when they remind you how much time you have left or when your time is up.
+Generally, at this point, meetings move into a topic, discussion and sharing portion of the meeting. The chairperson, sometimes called a moderator, is the person who reads the script, calls on people to share and makes sure that people do not monopolize the meeting.  Meetings often have a timekeeper to remind people when it is time to wrap up their share. When meetings have a timekeeper, it is always polite to acknowledge you’ve heard them when they remind you how much time you have left or when your time is up.  
+
 Per group conscience - this meeting is now a self-timing meeting.  We ask that you limit your share to 3 minutes so as many as possible have a chance to speak.  If you are unable to time yourself, I am happy to time for you. If I time for you, you will hear “reminder” when you have one minute remaining and “time” when your time has elapsed. 
 
 Today, I’m going to share some information about my personal recovery journey, why I come to meetings, what value meetings bring to me or anything else that comes up for me.  Then, we will open the meeting up for questions and sharing.
@@ -76,20 +77,19 @@ Navigating recovery can be difficult on your own.  ACA has a number of ways avai
 
 Providing service is an easy way to contribute and give back to ACA.  If you have attended a meeting, you can chair a meeting.  All that is involved is reading a script as I have done today.  In Agnostic ACA, we support everyone providing service and always welcome people who want to explore service positions.
 
-It is time for our Seventh Tradition, which states that “Every ACA group ought to be fully self-supporting, declining outside contributions.” 12-step fellowships do not take money from private organizations, public corporations, entrepreneurs, etc.  Everything we do, everything we provide is funded or provided solely by members of ACA.  A contribution can be financial, it can be your time, it can be supporting those of us who do provide service.  It is always appropriate to donate money to ACA meetings. You can contribute to the best of your ability and if that means you cannot afford to donate financially, you are still welcome to attend the meeting.  No one is ever turned away from a meeting if they do not contribute.
+It is time for our Seventh Tradition, which states that “Every ACA group ought to be fully self-supporting, declining outside contributions.” 12-step fellowships do not take money from private organizations, public corporations, entrepreneurs, etc.  Everything we do, everything we provide is funded or provided solely by members of ACA.  A contribution can be financial, it can be your time, it can be supporting those of us who do provide service.  It is always appropriate to donate money to ACA meetings. You can contribute to the best of your ability and if that means you cannot afford to donate financially, you are still welcome to attend the meeting.  No one is ever turned away from a meeting if they do not contribute.  
+
 To make a 7th tradition donation, use PayPal to make a donation to our e-mail account, agnostic.aca@gmail.com [you can go to the donate page on our website - ACAagnostica.com] 
 Will the host please turn the chat function back on? If there was someone whose share resonated with you, or someone you would like to talk with, feel free to reach out to them in chat.
-ANNOUNCEMENTS
+
+### ANNOUNCEMENTS
 
 
 Agnostic ACA supports multiple meetings a week; all the meetings use the same virtual meeting information. You are welcome to attend any of these meetings, regardless of how much time you have in recovery. 
 
-
 The booklist we’ve put together, and our secular versions of the steps are available on our website.
 
-
 We use a chat platform called Discord to stay in touch in between meetings.  We have built a vibrant, virtual community there and we invite you to join us.
-
 
 If you have questions, feel free to stay after the meeting for our social Parking Lot time and we will do our best to answer them for you. 
 
@@ -106,8 +106,9 @@ __*THE CHAIRPERSON NOW READS THE RESPONSIBILITY STATEMENT BELOW*__
 We are responsible.  When anyone, anywhere reaches out for help, I want the hand of ACA to always be there.  And, for that, we are responsible.
 
 
-Please go ahead and unmute if you would like to join me in reading the ACA serenity statement.
-Today, I seek the serenity to accept the people I cannot change, the courage to change the one I can, and the wisdom to know that one is me. 
+Please go ahead and unmute if you would like to join me in reading the ACA serenity statement.  
+
+*__Today, I seek the serenity to accept the people I cannot change, the courage to change the one I can, and the wisdom to know that one is me.__* 
 
 
 
